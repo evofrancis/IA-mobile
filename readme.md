@@ -1,0 +1,1 @@
+Nesta pasta constam as imagens da máquina MP5 para ser usadas nas respostas com a IA
